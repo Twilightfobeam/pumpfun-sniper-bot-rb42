@@ -1,4 +1,4 @@
-# 
+# quantitative pump.fun sniper bot | front-running + back-running offers the most advanced pump.fun sniper bot, with front-running and back-running. Ideal for professional MEV and
 
 
 
